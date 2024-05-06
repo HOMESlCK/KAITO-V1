@@ -3,7 +3,7 @@ int w me im alone most of the time cz non my friends play anymroe ☹️☹️ t
  ![image](https://github.com/KAITO-V1/KAITO-V1/assets/123318172/1331cf37-e319-4931-8c8b-bc22ea20747a)
 sniffs u
 
-sillliess
+- sillliess yeayyy ↓↓↓↓
 
 - ezya(@greenavmlover), rinnie, adeeb, mori(enanya), ryn(@rynn-dayo), vio(@enaemon), mimi, ian/pericles(@keitai-renwa) rui, mara and more :D !! 
 
