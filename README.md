@@ -5,6 +5,6 @@ sniffs u
 
 - sillliess yeayyy ↓↓↓↓
 
-- ezya(@greenavmlover), rinnie, adeeb, mori(enanya), ryn(@rynn-dayo), vio(@enaemon), mimi, ian/pericles(@keitai-renwa) rui, mara and more :D !! 
+- ezya(@greenavmlover), rinnie, adeeb, mori(enanya), ryn(@rynn-dayo), vio(@enaemon), mimi, ian/pericles(@keitai-renwa) rui, xio/nene(@boredasfman) and more :D !! 
 
 
