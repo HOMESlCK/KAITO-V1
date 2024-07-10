@@ -20,5 +20,7 @@ genshin -
 pjsk -
 232310476109414410
 
+more links on my profile ..
+checkout my retrospring if u have time!
 
   ![](https://komarev.com/ghpvc/?username=KAITO-V1)
