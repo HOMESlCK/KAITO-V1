@@ -23,4 +23,6 @@ pjsk -
 more links on my profile ..
 checkout my retrospring if u have time!
 
+![image](https://github.com/KAITO-V1/KAITO-V1/assets/123318172/0213084d-40cb-47a0-8fa3-32391bf19fc8)
+
   ![](https://komarev.com/ghpvc/?username=KAITO-V1)
